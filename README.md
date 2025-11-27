@@ -1,6 +1,5 @@
 ## Hi there 👋
 
-<!--
 **sxphyrin/sxphyrin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -13,4 +12,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+
+![꒰🏮꒱ tgcf](https://github.com/user-attachments/assets/553e7fef-77cf-4a63-a133-11e63b138f61)
+
