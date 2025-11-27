@@ -1,4 +1,4 @@
-## Hi there 👋
+<p align="center">“𝓘'𝓶 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝔂𝓸𝓾𝓻 𝓶𝓸𝓼𝓽 𝓭𝓮𝓿𝓸𝓽𝓮𝓭 𝓫𝓮𝓵𝓲𝓮𝓿𝓮𝓻.”</p>
 
 **sxphyrin/sxphyrin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -13,5 +13,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-![꒰🏮꒱ tgcf](https://github.com/user-attachments/assets/553e7fef-77cf-4a63-a133-11e63b138f61)
 
