@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=>ᴗ<&color=efcb88)
+  
 <p align="center">
 “𝓘'𝓶 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝔂𝓸𝓾𝓻 𝓶𝓸𝓼𝓽 𝓭𝓮𝓿𝓸𝓽𝓮𝓭 𝓫𝓮𝓵𝓲𝓮𝓿𝓮𝓻.”
 </p>
@@ -6,6 +8,6 @@
   <img width="500" height="300" src=https://i.pinimg.com/1200x/00/6f/09/006f0918ba130652ab2ab0ad11b3c190.jpg>
 </p>
 
-<p align="center">
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=>ᴗ<&color=efcb88)
+<p align="center"> 
+  this is a wip okk i still dont know how to format ts.
 </p>
