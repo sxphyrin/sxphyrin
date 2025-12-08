@@ -1,7 +1,7 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=>ᴗ<&color=efcb88)
-  
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=𓆩♡𓆪&color=efcb88)
+
 <p align="center">
-“𝓘'𝓶 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝔂𝓸𝓾𝓻 𝓶𝓸𝓼𝓽 𝓭𝓮𝓿𝓸𝓽𝓮𝓭 𝓫𝓮𝓵𝓲𝓮𝓿𝓮𝓻.”
+  𓏲 ๋࣭     ࣪ ˖       ⋆ ࣪   “𝓘'𝓶 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝔂𝓸𝓾𝓻 𝓶𝓸𝓼𝓽 𝓭𝓮𝓿𝓸𝓽𝓮𝓭 𝓫𝓮𝓵𝓲𝓮𝓿𝓮𝓻.”
 </p>
 
 <p align="center"> 
@@ -9,5 +9,20 @@
 </p>
 
 <p align="center"> 
-  this is a wip okk i still dont know how to format ts.
+════════════《✧》════════════
+</p>
+
+<p align="center"> 
+</p>
+
+<p align="center"> 
+</p>
+
+
+
+
+
+<p align="center"> 
+  this is a wip okk i still dont know how to format ts.<br/>
+  <sub>would anyone with a kind heart be willing to teach me :sob:</sub>
 </p>
