@@ -5,24 +5,20 @@
 </p>
 
 <p align="center"> 
-  <img width="500" height="300" src=https://i.pinimg.com/1200x/00/6f/09/006f0918ba130652ab2ab0ad11b3c190.jpg>
+  <img width="1000" height="500" src=https://i.pinimg.com/1200x/00/6f/09/006f0918ba130652ab2ab0ad11b3c190.jpg>
 </p>
 
 <p align="center"> 
-════════════《✧》════════════
+═════════════════════《✧》═════════════════════
 </p>
 
-<p align="center"> 
-</p>
+WIPWIPWIP
 
-<p align="center"> 
-</p>
+꒷‧ 𝑨𝒃𝒐𝒖𝒕 𝑴𝒆/𝑰𝒏𝒇𝒐 ˓ ꒷꒦
+* Call me Ciel (Luciel Nevada) ! she/her . 17 . fil/eng
+*  <sub>do not call me Xen unless we're close/online family.</sub>
 
-
-
-
-
-<p align="center"> 
-  this is a wip okk i still dont know how to format ts.<br/>
-  <sub>would anyone with a kind heart be willing to teach me :sob:</sub>
-</p>
+꒷‧ 𝑩𝒆𝒇𝒐𝒓𝒆 𝒚𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 ˓ ꒷꒦
+* make sure to always check my name or status. 'zzz' action means i'm afk or off-tab.
+*  <sub>orr i'm just frozen/unresponsive because i forgot to toggle the action. my bad, im not ignoring you on purpose ok?</sub>
+* i don't really put c+h in my name but feel free to ask! i'm a cudcomf person.
