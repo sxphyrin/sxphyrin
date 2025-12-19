@@ -12,13 +12,12 @@
 ═════════════════════《✧》═════════════════════
 </p>
 
-WIPWIPWIP
-
-꒷‧ 𝑨𝒃𝒐𝒖𝒕 𝑴𝒆/𝑰𝒏𝒇𝒐 ˓ ꒷꒦
-* Call me Ciel (Luciel Nevada) ! she/her . 17 . fil/eng
-*  <sub>do not call me Xen unless we're close/online family.</sub>
-
-꒷‧ 𝑩𝒆𝒇𝒐𝒓𝒆 𝒚𝒐𝒖 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕 ˓ ꒷꒦
-* make sure to always check my name or status. 'zzz' action means i'm afk or off-tab.
-*  <sub>orr i'm just frozen/unresponsive because i forgot to toggle the action. my bad, im not ignoring you on purpose ok?</sub>
-* i don't really put c+h in my name but feel free to ask! i'm a cudcomf person.
+꒷‧ 𝑰𝒏𝒇𝒐 ˓ ꒷꒦
+* Call me Ciel . aka Xen/Xeii for close friends.
+* Semi-verbal + socially awkward person . I'm very affectionate when we get close.
+* Talking in whispers 24/7 unless i'm interacting with multiple people at once.
+* I mostly play pt for my friends. So if they're offline, you'll likely see me off-tab.
+  </br>
+  </br>
+* My shading style is both consistent and inconsistent. some of my ponies are from 2024 or older.
+  </br><sub>Account creation date 13th May 2021</sub>
