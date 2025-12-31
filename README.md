@@ -1,13 +1,16 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=𓆩♡𓆪&color=efcb88)
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=3f0000&style=plastic)
 
 <p align="center">
-  𓏲 ๋࣭     ࣪ ˖       ⋆ ࣪   “𝓘'𝓶 𝓯𝓸𝓻𝓮𝓿𝓮𝓻 𝔂𝓸𝓾𝓻 𝓶𝓸𝓼𝓽 𝓭𝓮𝓿𝓸𝓽𝓮𝓭 𝓫𝓮𝓵𝓲𝓮𝓿𝓮𝓻.”
+【ᎷᎯᏒᎨᎾᏁᎬᏖᏖᎬ】
+</br>
+  𓏲 ๋࣭     ࣪ ˖       ⋆ ࣪   “𝙽𝚘𝚝𝚑𝚒𝚗𝚐 𝚒𝚜 𝚎𝚊𝚜𝚒𝚎𝚛 𝚝𝚘 𝚏𝚘𝚘𝚕 𝚝𝚑𝚊𝚗 𝚝𝚑𝚎 𝚜𝚎𝚗𝚜𝚎𝚜.”
 </p>
 
 <p align="center"> 
-  <img width="1000" height="500" src=https://i.pinimg.com/1200x/00/6f/09/006f0918ba130652ab2ab0ad11b3c190.jpg>
+  <img width="1000" height="500" src=https://i.pinimg.com/originals/5c/0d/3a/5c0d3aeec3c658b9beac15df5adc5ca6.gif>
 </p>
 
 <p align="center"> 
 ═════════════════════《✧》═════════════════════
 </p>
+
