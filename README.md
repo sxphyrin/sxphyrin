@@ -15,5 +15,4 @@
 </p>
 
 <p align="center"> 
-𝙳𝙽𝙲 𝚖𝚢 𝚙𝚘𝚗𝚒𝚎𝚜/𝚜𝚝𝚢𝚕𝚎 . 𝙰𝚜𝚔 𝚏𝚘𝚛 𝚒𝚗𝚜𝚙𝚘, 𝙸 𝚍𝚘𝚗𝚝 𝚋𝚒𝚝𝚎 𝚍𝚎𝚊𝚛.
-</p>
+Happy 2026, everyone!! Another year has come and gone. 2025 was full of little moments that turned into big memories, and most of all, it gave me the chance to meet so many people.</br>I love and appreciate all the ones I've been acquainted with and befriended this 2025. To my regi moots that I've warmed up to and made me come out of my shell, to my fandom moots that got me yapping or listening, to my friends from other servers who warmly welcomed me, and of course, to my years of friendship, shoutout to Rin and my online fam (hi fam i miss you guys)</br>As we step into the new year, I hope we continue creating more of these moments together. Here’s to a brand-new chapter! <33</p>
