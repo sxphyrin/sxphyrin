@@ -7,9 +7,9 @@
 </p>
 
 <p align="center">
-𝚛𝚎𝚊𝚍 𝚝𝚏𝚌-𝚖𝚊𝚛𝚒𝚘𝚗𝚎𝚝𝚝𝚎 𝚛𝚎𝚗𝚝𝚛𝚢 𝚏𝚘𝚛 𝚖𝚢 𝚘𝚌 𝚒𝚗𝚏𝚘 + 𝚊𝚛𝚝 !
-</p>
+ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ, ᴏᴋ? ᴀꜱᴋ ꜰᴏʀ ɪɴꜱᴘᴏ. ɪ ᴅᴏɴ'ᴛ ʙɪᴛᴇ, ᴅᴇᴀʀ.
 
+</p>
 <p align="center"> 
   <img width="1000" height="500" src=https://i.pinimg.com/originals/5c/0d/3a/5c0d3aeec3c658b9beac15df5adc5ca6.gif>
 </p>
