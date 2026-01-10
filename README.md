@@ -1,9 +1,9 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=3f0000&style=plastic)
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=c12f63&style=plastic)
 
 <p align="center">
 【ᎷᎯᏒᎨᎾᏁᎬᏖᏖᎬ】
 </br>
-  𓏲 ๋࣭     ࣪ ˖       ⋆ ࣪   “ꭼ𝕧𝖊𝕣у ｍ𝒊𝓼𝚝𝕒𝘬𝕖 𝗒𝒐𝚞 𝙨𝒆ℯ ｉ𝓼 𝑦σ𝐮𝓻𝓼..”
+  𓏲 ๋࣭     ࣪ ˖       ⋆ ࣪   “𝕺ⲟ𝐧’𝓽 𝐼𝛐𝗈𝗄 аԝаү 𝗇𝝾ꮃ.. 𝒕𝔥𝓮 ｓ𝗁൦𝒘 Ꮒ𝓪ｓ 𝚓սꜱ𝙩 𝖇е𝘨𝓾ռ”
 </p>
 
 <p align="center">
@@ -11,7 +11,7 @@
 
 </p>
 <p align="center"> 
-  <img width="1000" height="500" src=https://i.pinimg.com/originals/5c/0d/3a/5c0d3aeec3c658b9beac15df5adc5ca6.gif>
+  <img width="1000" height="500" src=https://i.pinimg.com/originals/ac/6f/68/ac6f682650502a83df15dd391b8bb856.gif>
 </p>
 
 <p align="center"> 
