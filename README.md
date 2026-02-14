@@ -1,14 +1,19 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=c12f63&style=plastic)
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=631117&style=plastic)
 
-<p align="center">
-【ᎷᎯᏒᎨᎾᏁᎬᏖᏖᎬ】
-</br>
-  𓏲 ๋࣭     ࣪ ˖       ⋆ ࣪   “𝕺ⲟ𝐧’𝓽 𝐼𝛐𝗈𝗄 аԝаү 𝗇𝝾ꮃ.. 𝒕𝔥𝓮 ｓ𝗁൦𝒘 Ꮒ𝓪ｓ 𝚓սꜱ𝙩 𝖇е𝘨𝓾ռ”
-</p>
-
-<p align="center">
-ᴅᴏ ɴᴏᴛ ᴄᴏᴘʏ, ᴏᴋ? ɪ ᴅᴏɴ'ᴛ ʙɪᴛᴇ, ᴅᴇᴀʀ.
-</p>
 <p align="center"> 
-  <img width="1000" height="500" src=https://i.pinimg.com/originals/ac/6f/68/ac6f682650502a83df15dd391b8bb856.gif>
+꒷‧ Call me Ciel | she/her | fil/eng ˓ ꒷꒦
+</br>
+   ˚₊ « c+h encouraged (ask) ! friends/moots get a pass
+</p>
+
+
+<h5 align="center">
+  
+⨳  ﹒draw on my [strawpage](https://sxphyrin.straw.page/) ! ˖ ࣪ ִ𖤐
+
+<h5 align="center">
+
+
+<p align="center"> 
+  i unconsciously adapt my friends' speech style.
 </p>
