@@ -11,14 +11,12 @@
   
 ⨳  ﹒draw on my [strawpage](https://sxphyrin.straw.page/) ! ˖ ࣪ ִ𖤐
 
-<h5 align="center">
+</h5>
 
 <img width="1500" height="500" alt="vampnoob" src="https://github.com/user-attachments/assets/d23d6306-3bc3-4e9c-8a8a-197e2dd317b8" />
 
-   </br>
-   </br>
-<p align="center"> 
-── .✦ Very affectionate or doting to oomfs, but also mean and aggressive (playful/non-serious way, most of the time) depending on our dynamic. Both are my ways of showing affection. I tend to be dry/distant on first interactions, so if I ever start talking more often, then you're already on my good/safelist. <3
+── .✦ Please be mindful if we’re not close yet. I won’t always match others' energy, humor, or freak. I have limits on what I can tolerate, and if something makes me uncomfortable, I’ll likely go quiet or distance myself.
 </br>
+── .✦ I am not a very social person, despite having many friends from different fandoms and servers. I'm either alone or with my friends. Although we may seem unapproachable, we encourage you to interact if any of our topics are of interest to you. (Especially PMM!! current fixation)
 </br>
-── .✦ Please be mindful if we’re not close yet. I won’t always match others' energy, humor, or freak. I have limits of what I can tolerate, and if something makes me uncomfortable, I’ll likely go quiet or distance myself.</p>
+── .✦ My style changes over time; I don't have a fixed style since it depends on the character's color scheme. Do not copy or ask for inspo since two of my styles are a mix of my own and my friends' (special mention to eimerxhs and himari) to match. 
