@@ -24,3 +24,11 @@
 . ︵ ❁ Avoid venting or trauma dumping. Comfs can ask, though please do so in whispers/private. 🫂
 
 . ︵ ❁ Do not copy or ask for inspo since two of my styles are a mix of my own and my friends' styles to match. I also do NOT post my ponies anywhere except my facebook, where my post privacy is set to friends.
+
+## ₊ 🌻. Extra ﹏
+
+. ︵ ❁ My main pony ok~ and vampnoob i guess
+
+<img width="250" height="250" alt="azur" src="https://github.com/user-attachments/assets/120b508c-4ad5-4067-8fd6-2103e5031df6" />
+<img width="250" height="250" alt="vampnoob" src="https://github.com/user-attachments/assets/3c8e4d2d-2b81-45eb-9712-3c35cf303e18" />
+
