@@ -19,16 +19,16 @@
 
 . ︵ ❁ I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle. Do not go humping my pony (yes, this happened before) even as a joke.
 
-. ︵ ❁ No roleplay and shipping. Do not take this to heart ^^
+. ︵ ❁ No roleplay and shipping. Do not take this to heart, I'd just rather not be approached for this purpose.
 
 . ︵ ❁ Avoid venting or trauma dumping. Comfs can ask, though please do so in whispers/private. 🫂
 
-. ︵ ❁ Do not copy or ask for inspo since two of my styles are a mix of my own and my friends' styles to match. I also do NOT post my ponies anywhere except my facebook, where my post privacy is set to friends.
+. ︵ ❁ Do not copy or ask for inspo. Some of my styles are shared/match with my friends, and it is not my place to allow others to copy them.
 
 ## ₊ 🌻. Extra ﹏
 
-. ︵ ❁ My main pony ok~ and vampnoob i guess
+. ︵ ❁ Main style vs main pony
 
-<img width="250" height="250" alt="azur" src="https://github.com/user-attachments/assets/120b508c-4ad5-4067-8fd6-2103e5031df6" />
-<img width="250" height="250" alt="vampnoob" src="https://github.com/user-attachments/assets/3c8e4d2d-2b81-45eb-9712-3c35cf303e18" />
+<img width="250" height="250" alt="@sxphyrin" src="https://github.com/user-attachments/assets/38396b87-58f5-4e0d-96be-20fbfd4d971e" />
+<img width="245" height="245" alt="@sxphyrin" src="https://github.com/user-attachments/assets/120b508c-4ad5-4067-8fd6-2103e5031df6" />
 
