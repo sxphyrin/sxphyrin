@@ -31,6 +31,5 @@
 
 <img width="250" height="250" alt="@sxphyrin" src="https://github.com/user-attachments/assets/38396b87-58f5-4e0d-96be-20fbfd4d971e" />
 <img width="245" height="245" alt="@sxphyrin" src="https://github.com/user-attachments/assets/120b508c-4ad5-4067-8fd6-2103e5031df6" />
-</br>
-</br>
-. ︵ ❁ This is outdated [tfc info](https://rentry.co/tfc-info) , [marionette info](https://rentry.co/tfc-marionette)
+
+. ︵ ❁ This is outdated ok > [tfc info](https://rentry.co/tfc-info) , [marionette info](https://rentry.co/tfc-marionette)
