@@ -6,7 +6,7 @@
 
 $\textcolor{#6d0023}{\text{. ︵ ❁ My online name is Lu(ciel), aka Iruma. I don't mind nicknames or referring to me as the character I'm using. }}$
 
-. ︵ ❁ In whispers/vc with a friend, or off-tab when alone. W2I since I might not see or respond to public chat (I usually have 10+ tabs open).
+. ︵ ❁ In whispers/vc with a friend, or off-tab when alone. W2I since I might not see or respond to public chat (I usually have 10+ tabs open). + also near-sighted, I'm on 4x to 6x zoom when playing.
 
 $\textcolor{#6d0023}{\text{. ︵ ❁ C+H heavily encouraged ! I don't put it in my name, but ask, and I will likely say yes!! Make sure to check if I have DNI or DNIUF in my name.}}$
 
