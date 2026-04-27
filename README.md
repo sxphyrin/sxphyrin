@@ -22,14 +22,11 @@ $\textcolor{#6d0023}{\text{. ︵ ❁ I will not entertain flirting, suggestive r
 
 . ︵ ❁ No roleplay and shipping. No hard feelings to rp/shippers, I'd just rather not be approached for this purpose.
 
-$\textcolor{#6d0023}{\text{. ︵ ❁ Avoid venting or trauma dumping. Comfs can ask, though please do so in whispers/private. 🫂}}$
-
-. ︵ ❁ Do not copy or ask for inspo. Some of my styles are shared/match with my friends, and it is not my place to allow others to copy them. However, I do love to gift people skins. So if I'm in the mood, I might just give you one out of the blue!
+$\textcolor{#6d0023}{\text{. ︵ ❁ Do not copy or ask for inspo. Some of my styles are shared/match with my friends, and it is not my place to allow others to copy them.}}$
 
 ## ₊ 🖤. Extra ﹏
 
-$\textcolor{#6d0023}{\text{. ︵ ❁ My style differs per character color palette. If the style somehow looks similar to yours, note that it was not intentional (it might've been from the colorize tool). My main style is originally bright and saturated.}}$
-
+. ︵ ❁ My style differs per character color palette. If the style somehow looks similar to yours, note that it was not intentional. (It might've been from the colorize tool.) My main style is originally bright and saturated; I might look like a highlighter to others with high saturation settings.
 
 <img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/c6682047-9ccd-4606-a7df-8869f201fcfa" />
 <img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/14e84be4-82f5-40b5-a4d4-4c60c89f7c0c" />
