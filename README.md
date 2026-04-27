@@ -28,9 +28,9 @@ $\textcolor{#6d0023}{\text{. ︵ ❁ Avoid venting or trauma dumping. Comfs can 
 
 ## ₊ 🖤. Extra ﹏
 
-$\textcolor{#6d0023}{\text{. ︵ ❁ Main style (Itrapped) vs my main style but with a filter (Lady Corvus).}}$
+$\textcolor{#6d0023}{\text{. ︵ ❁ My style differs per character color palette. If the style somehow looks similar to yours, note that it was not intentional (it might've been from the colorize tool). My main style is originally bright and saturated.}}$
 
-<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/e1b4f9cd-4308-4c7d-8895-ddf6ef3bf6dd"/><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/02507461-c7ff-47de-8162-066e56e73445"/>
 
-. ︵ ❁ Lady Corvus is my design/interpretation of y/n from a Lilia x reader fic I've read on ao3. 
+<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/c6682047-9ccd-4606-a7df-8869f201fcfa" />
+<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/14e84be4-82f5-40b5-a4d4-4c60c89f7c0c" />
 
