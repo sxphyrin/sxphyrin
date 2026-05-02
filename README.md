@@ -26,8 +26,8 @@ $\textcolor{#6d0023}{\text{. ︵ ❁ Do not copy or ask for inspo. Some of my st
 
 ## ₊ 🖤. Extra ﹏
 
-. ︵ ❁ My style differs per character color palette. If the style somehow looks similar to yours, note that it was not intentional. (It might've been from the colorize tool.) My main style is originally bright and saturated; I might look like a highlighter to others with high saturation settings.
+. ︵ ❁ Who Sylas (my twst oc) is based on btw! Oc info is a wip but he's based on spriggans from Maleficent.
 
-<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/c6682047-9ccd-4606-a7df-8869f201fcfa" />
-<img width="200" height="190" alt="image" src="https://github.com/user-attachments/assets/14e84be4-82f5-40b5-a4d4-4c60c89f7c0c" />
+<img width="500" height="210" alt="Sylas' character inspiration. Spriggan from Maleficent" src="https://github.com/user-attachments/assets/39090eeb-6030-45e0-bc53-be38bc4430ba" />
+
 
