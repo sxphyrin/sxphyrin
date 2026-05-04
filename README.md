@@ -8,7 +8,7 @@ $\textcolor{#6d0023}{\text{. ︵ ❁ Luciel aka Iruma/Xeii | she/her | 7teen | f
 
 . ︵ ❁ Always w2i (whisper to int) | C+h encouraged unless there is "dniuf" in my name.
 </br>
-<sub> You can int through whispers despite my dniuf, just not directly! </sub>
+<sub> You can int through whispers despite my dniuf okk. acquaintances can also bypass. </sub>
 
 $\textcolor{#6d0023}{\text{. ︵ ❁ Late response? = afk / off-tab | I forget to toggle zzz/sleeping action. 🌙}}$
 
