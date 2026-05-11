@@ -2,4 +2,7 @@
 
 . ︵ ❁ under construction ok 🔨🔨
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/bfb307f8-1277-49b2-9582-235a26241874" />
+
+<p align="center"> 
+  <img width="700" height="350" src=https://i.pinimg.com/originals/5b/de/92/5bde926985cd7f00c5ec0ba00b9951ca.gif>
+</p>
