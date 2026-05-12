@@ -115,7 +115,7 @@ no hard feelings, ok. i know some people out there are actually cool, but some a
 <br>
 
 <p align="center">
-<img width="1000" height="500" src=https://i.pinimg.com/originals/d3/10/d3/d310d314fc99e1aedd20294e5cc6c5b1.gif>
+<img width="1000" height="560" src=https://i.pinimg.com/originals/d3/10/d3/d310d314fc99e1aedd20294e5cc6c5b1.gif>
 </p>
 
 <br>
