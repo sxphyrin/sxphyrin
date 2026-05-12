@@ -1,8 +1,125 @@
 ![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=6d0023&style=plastic)
 
-. ︵ ❁ under construction ok 🔨🔨
 
 
-<p align="center"> 
-  <img width="700" height="350" src=https://i.pinimg.com/originals/5c/0d/3a/5c0d3aeec3c658b9beac15df5adc5ca6.gif>
+<p align="center">
+♕
+<br>
+<img width="200" height="200" src=https://i.pinimg.com/originals/ac/74/cc/ac74ccf0893a2453c53b0774f446d183.gif>
+</p>
+
+<p align="center">
+𐌉𝓉'𝓼 ﮦ𝔽𐊇 𝓦𝘐𝚻н Υ𝞸UᏒ 𝖧𝔈𝐴𝗗 !
+<br>
+  ꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞𝙡/eng ˓ ꒷꒦
+</p>
+
+<details>
+  
+<summary>
+『 𝓑𝒆𝒇𝒐𝒓𝒆 𝓨𝒐𝒖 𝓘𝒏𝒕 』❞
+</summary>
+
+꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
+<br>
+┈ ♥ . sv + socially awkward | i rarely int with other people but i do try, ok? okk (⌒_⌒;)
+<br>
+┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless there is "dniuf" in my name.
+<br>
+┈ ♥ . late/no response? = afk or off-tab | i forget to toggle zzz/sleeping action. 🌙
+<br>
+┈ ♥ . im not that chronically online so some jokes or ref might fly over my head..
+<br>
+┈ ♥ . has a "memory of a fart", according to oomfs | i might ask the same question 3 times within a day
+
+</details>
+
+<details>
+  
+<summary>
+『 𝓑𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔 』❞
+</summary>
+
+꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
+<br>
+┈ ♥ . ages 15 and below iwc | im 17 and prefer to engage with people around my age group.
+<br>
+┈ ♥ . i will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
+<br>
+┈ ♥ . basic dni | no roleplay | very selective shipping interactions. <- i only do so with oomfie
+<br>
+┈ ♥ . do not copy | ask for inspo. slight inspiration is fine, but i will not agree if you're asking to use a style that i use to match with friends. change of topic! you can ask on how i make some stuff with the toys, i dont mind!
+
+</details>
+
+<details>
+  
+<summary>
+『 𝓘𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 』❞
+</summary>
+
+꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
+<br>
+┈ ♥ . 𝐇𝐨𝐛𝐛𝐢𝐞𝐬
+<br>
+i love love reading fanfiction. my attention span lasts longer when reading with visuals | i also like to collect stationery and organize stuff by color | uh i also like to make ponies, if that counts. which is why i gift skins to people when i feel like it.
+<br>
+┈ ♥ . 𝐆𝐚𝐦𝐞𝐬, except i dont play most of it sighh
+<br>
+crk (Zyphris on Hollyberry Server) │ roblox (I only play w oomfs) │ genshin impact │ twisted wonderland
+<br>
+<sub>I need to lock in cause im way behind on whatever is happening on genshin and i'm too focused on my fav character/s in twst.</sub>
+<br>
+┈ ♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)
+<br>
+attack on titan │ bungo stray dogs │ demon slayer │ guild member next door │ mo dao zu shi │ owari no seraph │ secrets of the silent witch │ tian guan ci fu │ tokyo revengers │ welcome to demon school iruma-kun │ etc.
+<br>
+┈ ♥ . 𝐎𝐧 𝐘𝐓
+<br>
+alien stage │ epic: the musical │ gacha | murder drones | underverse
+<br>
+┈ ♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬
+<br>
+boboiboy │ boboiboy galaxy │ creepypasta │ running man: animation
+<br>
+┈ ♥ . 𝐅𝐚𝐧𝐝𝐨𝐦 𝐃𝐍𝐈 𝐮𝐧𝐥𝐞𝐬𝐬 𝐢 𝐝𝐨 : the freak circus
+<br>
+no hard feelings, ok. i know some people out there are actually cool, but some are 14 y.o spamming freaky stuff in public.
+<br>
+</details>
+
+<details>
+  
+<summary>
+『 𝓕𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝓒𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 』❞
+</summary>
+
+꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
+<br>
+┈ ♥ . Bungo Stray Dogs - Jouno Saiguku
+<br>
+┈ ♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie
+<br>
+┈ ♥ . Genshin Impact - Venti
+<br>
+┈ ♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob
+<br>
+┈ ♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi
+<br>
+┈ ♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Sylas Heathfolke (my oc lolol)
+<br>
+┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid
+<br>
+</details>
+
+<br>
+
+<p align="center">
+<img width="1000" height="500" src=https://i.pinimg.com/originals/d3/10/d3/d310d314fc99e1aedd20294e5cc6c5b1.gif>
+</p>
+
+<br>
+
+<p align="center">
+<sub>thank you kind stranger for teaching me how to do those collpase categories</sub>
 </p>
