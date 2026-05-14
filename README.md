@@ -46,6 +46,8 @@
 <br>
 ┈ ♥ . i will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
 <br>
+<sub>i hide/mute those who quote or spam inappropriate stuff in public.</sub>
+<br>
 ┈ ♥ . basic dni | no roleplay | very selective shipping interactions. <- i only do so with oomfie
 <br>
 ┈ ♥ . do not copy | ask for inspo. slight inspiration is fine, but i will not agree if you're asking to use a style that i use to match with friends. change of topic! you can ask on how i make some stuff with the toys, i dont mind!
@@ -81,11 +83,6 @@ alien stage │ epic: the musical │ gacha | murder drones | underverse
 ┈ ♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬
 <br>
 boboiboy │ boboiboy galaxy │ creepypasta │ running man: animation
-<br>
-┈ ♥ . 𝐅𝐚𝐧𝐝𝐨𝐦 𝐃𝐍𝐈 𝐮𝐧𝐥𝐞𝐬𝐬 𝐢 𝐝𝐨 : the freak circus
-<br>
-no hard feelings, ok. i know some people out there are actually cool, but some are 14 y.o spamming freaky stuff in public.
-<br>
 </details>
 
 <details>
@@ -108,7 +105,7 @@ no hard feelings, ok. i know some people out there are actually cool, but some a
 <br>
 ┈ ♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Sylas Heathfolke (my oc lolol)
 <br>
-┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid
+┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure
 <br>
 </details>
 
