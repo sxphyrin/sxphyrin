@@ -24,7 +24,9 @@
 <br>
 ┈ ♥ . sv + socially awkward | i rarely int with other people but i do try, ok? okk (⌒_⌒;)
 <br>
-┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless there is "dniuf" in my name.
+┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless im with someone (green names c+h anytime)
+<br>
+┈ ♥ . ^-- you CAN whisper even if i have "dniuf" in name for short/small talks or crowns. i put dni/uf/uid in my name whenever my social battery is low.
 <br>
 ┈ ♥ . late/no response? = afk or off-tab | i forget to toggle zzz/sleeping action. 🌙
 <br>
