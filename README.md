@@ -68,9 +68,9 @@
 <br>
 i love love reading fanfiction. my attention span lasts longer when reading with visuals | i also like to collect stationery and organize stuff by color | uh i also like to make ponies, if that counts. which is why i gift skins to people when i feel like it.
 <br>
-┈ ♥ . 𝐆𝐚𝐦𝐞𝐬, except i dont play most of it sighh
+┈ ♥ . 𝐆𝐚𝐦𝐞𝐬, except i dont play most of it sighh (marked with ✗)
 <br>
-crk (Zyphris on Hollyberry Server) │ roblox (I only play w oomfs) │ genshin impact │ twisted wonderland
+crk (Zyphris on Hollyberry Server) │ roblox (I only play w oomfs) │ genshin impact.✗ │ twisted wonderland.✗
 <br>
 <sub>I need to lock in cause im way behind on whatever is happening on genshin and i'm too focused on my fav character/s in twst.</sub>
 <br>
@@ -107,7 +107,7 @@ boboiboy │ boboiboy galaxy │ creepypasta │ running man: animation
 <br>
 ┈ ♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Sylas Heathfolke (my oc lolol)
 <br>
-┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure
+┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans
 <br>
 </details>
 
