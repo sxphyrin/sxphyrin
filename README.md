@@ -53,6 +53,9 @@
 ┈ ♥ . basic dni | no roleplay | very selective shipping interactions.
 <br>
 ┈ ♥ . do not copy | ask for inspo. slight inspiration is fine, but i will not agree if you're asking to use a style that i use to match with friends. change of topic! you can ask on how i make some stuff with the toys, i don't mind helping with that.
+<br>
+<br>
+┈ ♥ . if you see a pony named ". @ iruma tut ! by me . copy ✔" YES, its me and YES, i allow copying! (its just the toy hair) the ahoge was just so cute that i wanted to share it since i've been seeing other iruma ponies. <33
 
 </details>
 
