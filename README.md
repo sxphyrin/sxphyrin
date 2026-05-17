@@ -120,5 +120,5 @@ boboiboy │ boboiboy galaxy │ creepypasta │ running man: animation
 <br>
 
 <p align="center">
-<sub>thank you kind stranger for teaching me how to do those collpase categories</sub>
+<sub>thank you kind stranger for teaching me how to do those collapse categories</sub>
 </p>
