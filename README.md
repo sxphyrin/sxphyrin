@@ -22,17 +22,17 @@
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . sv + socially awkward | i rarely int with other people but i do try, ok? okk (⌒_⌒;)
+┈ ♥ . sv + socially awkward | i rarely int first, but i do try, ok..? (⌒_⌒;)
 <br>
-┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless im with someone (green names c+h anytime)
+┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless im already with someone. (green names = c+h anytime)
 <br>
-┈ ♥ . ^-- you CAN whisper even if i have "dniuf" in name for short/small talks or crowns. i put dni/uf/uid in my name whenever my social battery is low.
+┈ ♥ . ^-- you CAN still whisper even if i have "dniuf" in name for small talks or crowns. i usually use dni/uf/uid in my name whenever my social battery is low.
 <br>
 ┈ ♥ . late/no response? = afk or off-tab | i forget to toggle zzz/sleeping action. 🌙
 <br>
-┈ ♥ . im not that chronically online so some jokes or ref might fly over my head..
+┈ ♥ . im not that chronically online, so some jokes/references may completely fly over my head..
 <br>
-┈ ♥ . has a "memory of a fart", according to oomfs | i might ask the same question 3 times within a day
+┈ ♥ . according to oomfs, i have a "memory of a fart" | i might ask the same question multiple times.
 
 </details>
 
@@ -44,15 +44,15 @@
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . ages 15 and below iwc | im 17 and prefer to engage with people around my age group.
+┈ ♥ . ages 15 and below iwc | im 17 and prefer interacting with people around my age group.
 <br>
 ┈ ♥ . i will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
 <br>
 <sub>i hide/mute those who quote or spam inappropriate stuff in public.</sub>
 <br>
-┈ ♥ . basic dni | no roleplay | very selective shipping interactions. <- i only do so with oomfie
+┈ ♥ . basic dni | no roleplay | very selective shipping interactions.
 <br>
-┈ ♥ . do not copy | ask for inspo. slight inspiration is fine, but i will not agree if you're asking to use a style that i use to match with friends. change of topic! you can ask on how i make some stuff with the toys, i dont mind!
+┈ ♥ . do not copy | ask for inspo. slight inspiration is fine, but i will not agree if you're asking to use a style that i use to match with friends. change of topic! you can ask on how i make some stuff with the toys, i don't mind helping with that.
 
 </details>
 
@@ -68,11 +68,11 @@
 <br>
 i love love reading fanfiction. my attention span lasts longer when reading with visuals | i also like to collect stationery and organize stuff by color | uh i also like to make ponies, if that counts. which is why i gift skins to people when i feel like it.
 <br>
-┈ ♥ . 𝐆𝐚𝐦𝐞𝐬, except i dont play most of it sighh (marked with ✗)
+┈ ♥ . 𝐆𝐚𝐦𝐞𝐬, (✗ = quitted playing or haven't played)
 <br>
 crk (Zyphris on Hollyberry Server) │ roblox (I only play w oomfs) │ genshin impact.✗ │ twisted wonderland.✗
 <br>
-<sub>I need to lock in cause im way behind on whatever is happening on genshin and i'm too focused on my fav character/s in twst.</sub>
+<sub>I need to lock in cause im way behind on whatever is happening on genshin, and i'm too focused on my fav character/s in twst.</sub>
 <br>
 ┈ ♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)
 <br>
