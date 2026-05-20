@@ -34,7 +34,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 ┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless im already with someone. (green names = c+h anytime)
 <br>
-┈ ♥ . ^-- you CAN still whisper even if i have "dniuf" in name for small talks or crowns. i usually use dni/uf/uid in my name whenever my social battery is low.
+┈ ♥ . ^-- you CAN still whisper even if i have "dniuf" in name for small talks or crowns. i usually use dni/uf/uid in my name whenever my social battery is low, BUT i reply to whispers.
 <br>
 ┈ ♥ . late/no response? = afk or off-tab | i forget to toggle zzz/sleeping action. 🌙
 <br>
