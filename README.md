@@ -124,7 +124,7 @@ Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 
 <h4 align="center">
 
-If you wish to access ones [memories](https://github.com/sxphyrin/sxphiel) .
+If you wish to see ones [memories](https://github.com/sxphyrin/sxphiel) .
 
 </h4>
 <br>
