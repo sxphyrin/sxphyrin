@@ -30,17 +30,15 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . sv + socially awkward | i rarely int first, but i do try, ok..? (⌒_⌒;)
+┈ ♥ . SV + socially awkward | I rarely initiate conversations first. (⌒_⌒;)
 <br>
-┈ ♥ . always w2i (whisper to int) | c+h is encouraged unless im already with someone. (green names = c+h anytime)
+┈ ♥ . Whispers are always welcome, even when I have 'dniuf' in my name. C+h is encouraged unless I'm already with someone..
 <br>
-┈ ♥ . ^-- you CAN still whisper even if i have "dniuf" in name for small talks or crowns. i usually use dni/uf/uid in my name whenever my social battery is low, BUT i reply to whispers.
+┈ ♥ . Late/no response? I'm likely afk, off-tab, or momentarily distracted. I tend to forget to toggle 'zzz'/sleeping action. 🌙
 <br>
-┈ ♥ . late/no response? = afk or off-tab | i forget to toggle zzz/sleeping action. 🌙
+┈ ♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..
 <br>
-┈ ♥ . im not that chronically online, so some jokes/references may completely fly over my head..
-<br>
-┈ ♥ . according to oomfs, i have a "memory of a fart" | i might ask the same question multiple times.
+┈ ♥ . According to oomfs, I have a "memory of a fart". I may ask the same question multiple times.
 
 </details>
 
@@ -52,15 +50,15 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . ages 15 and below iwc | im 17 and prefer interacting with people around my age group.
+┈ ♥ . Ages 15 and below IWC. I am 17, and I prefer interacting with people around my age group.
 <br>
-┈ ♥ . i will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
+┈ ♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
 <br>
-<sub>i hide/mute those who quote or spam inappropriate stuff in public.</sub>
+<sub> I hide/mute those who quote or spam inappropriate stuff in public.</sub>
 <br>
-┈ ♥ . basic dni | no roleplay | very selective shipping interactions.
+┈ ♥ . Basic DNI criteria. + no roleplay or shipping interactions.
 <br>
-┈ ♥ . do not copy | you may ask for inspo. slight inspiration is fine, but i will not agree if you're asking to use a style that i use to match with friends. change of topic! you can ask on how i make some stuff with the toys, i don't mind helping with that.
+┈ ♥ . Do not copy or post my skins on Pinterest. Some of my styles are exclusively shared with my friends, and I'd rather not have someone be mistaken as me because of the style. Inspirations are fine. Just ask, I don't bite.
 <br>
 
 
@@ -74,27 +72,23 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . 𝐇𝐨𝐛𝐛𝐢𝐞𝐬
+┈ ♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games since I mostly read)
 <br>
-i love love reading fanfiction. my attention span lasts longer when reading with visuals | i also like to collect stationery and organize stuff by color | uh i also like to make ponies, if that counts. which is why i gift skins to people when i feel like it.
-<br>
-┈ ♥ . 𝐆𝐚𝐦𝐞𝐬, (✗ = quitted playing or haven't played)
-<br>
-crk (Zyphris on Hollyberry Server) │ roblox (I only play w oomfs) │ genshin impact.✗ │ twisted wonderland.✗
+CRK (Zyphris on Hollyberry Server) | Roblox (I only play with certain friends) │ Genshin Impact.✗ │ Twisted Wonderland.✗ (sadly, I can't play)
 <br>
 <sub>I need to lock in cause im way behind on whatever is happening on genshin, and i'm too focused on my fav character/s in twst.</sub>
 <br>
 ┈ ♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)
 <br>
-attack on titan │ bungo stray dogs │ demon slayer │ guild member next door │ mo dao zu shi │ owari no seraph │ secrets of the silent witch │ tian guan ci fu │ tokyo revengers │ welcome to demon school iruma-kun │ etc.
+Attack on Titan │ Bungo Stray Dogs │ Demon Slayer │ Guild Member Next Door │ Mo Dao Zu Shi │ Owari no Seraph │ Secrets of the Silent Witch │ Tian Guan Ci Fu │ Tokyo Revengers │ Welcome to Demon School, Iruma-kun, │ etc.
 <br>
 ┈ ♥ . 𝐎𝐧 𝐘𝐓
 <br>
-alien stage │ epic: the musical │ gacha | murder drones | underverse
+Alien Stage │ Epic: The Musical │ Gacha | Murder Drones | Underverse
 <br>
 ┈ ♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬
 <br>
-boboiboy │ boboiboy galaxy │ creepypasta │ running man: animation
+Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 </details>
 
 <details>
@@ -121,14 +115,17 @@ boboiboy │ boboiboy galaxy │ creepypasta │ running man: animation
 <br>
 </details>
 
-<br>
-
 <p align="center">
 <img width="1000" height="560" src=https://i.pinimg.com/originals/d3/10/d3/d310d314fc99e1aedd20294e5cc6c5b1.gif>
 </p>
 
+
 <br>
 
-<p align="center">
-<sub>thank you kind stranger for teaching me how to do those collapse categories</sub>
-</p>
+<h4 align="center">
+
+If you wish to access ones [memories](https://github.com/sxphyrin/sxphiel) .
+
+</h4>
+<br>
+
