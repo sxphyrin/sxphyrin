@@ -115,8 +115,10 @@ Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 <br>
 </details>
 
-<p align="center">
-<img width="1000" height="560" src=https://i.pinimg.com/originals/d3/10/d3/d310d314fc99e1aedd20294e5cc6c5b1.gif>
+<p align= "center">
+
+![](https://files.catbox.moe/goj42u.png)
+
 </p>
 
 
