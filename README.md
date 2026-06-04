@@ -112,13 +112,11 @@ Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 ┈ ♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Sylas Heathfolke (my oc lolol)
 <br>
 ┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans
-<br>
 </details>
 
 <p align= "center">
 
-![](https://files.catbox.moe/goj42u.png)
-
+<img src=https://files.catbox.moe/goj42u.png  width="1000">
 </p>
 
 
