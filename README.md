@@ -114,12 +114,6 @@ Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 ┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans
 </details>
 
-<p align= "center">
-
-<img src=https://files.catbox.moe/goj42u.png  width="1000">
-</p>
-
-
 <br>
 
 <h4 align="center">
