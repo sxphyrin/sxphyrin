@@ -30,15 +30,15 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . SV + socially awkward | I rarely initiate conversations first. (⌒_⌒;)
+　ᛝ　♥ . SV + socially awkward. I rarely interact first unless they're a green name. (⌒_⌒;)
 <br>
-┈ ♥ . Whispers are always welcome, even when I have 'dniuf' in my name. C+h is encouraged unless I'm already with someone..
+　ᛝ　♥ . I mostly talk in whispers. Always w2i even with 'dniuf' in my name.
 <br>
-┈ ♥ . Late/no response? I'm likely afk, off-tab, or momentarily distracted. I tend to forget to toggle 'zzz'/sleeping action. 🌙
+　ᛝ　♥ . Late/no response? I'm likely off-tab, or momentarily distracted. I tend to forget to toggle 'zzz'/sleeping action. 🌙
 <br>
-┈ ♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..
+　ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..
 <br>
-┈ ♥ . According to oomfs, I have a "memory of a fart". I may ask the same question multiple times.
+　ᛝ　♥ . According to oomfs, I have a "memory of a fart". I may ask the same question multiple times.
 
 </details>
 
@@ -50,15 +50,15 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . Ages 15 and below IWC. I am 17, and I prefer interacting with people around my age group.
+　ᛝ　♥ . Ages 15 and below IWC. I am 17, and I prefer interacting with people around my age group.
 <br>
-┈ ♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
+　ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
 <br>
 <sub> I hide/mute those who quote or spam inappropriate stuff in public.</sub>
 <br>
-┈ ♥ . Basic DNI criteria. + no roleplay or shipping interactions.
+　ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.
 <br>
-┈ ♥ . Do not copy or post my skins on Pinterest. Some of my styles are exclusively shared with my friends, and I'd rather not have someone be mistaken as me because of the style. Inspirations are fine. Just ask, I don't bite.
+　ᛝ　♥ . Do not copy or post my skins on Pinterest or any other platforms. Inspirations are fine. Just ask! I don't bite.
 <br>
 
 
@@ -72,21 +72,19 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games since I mostly read)
+　ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play)
 <br>
-CRK (Zyphris on Hollyberry Server) | Roblox (I only play with certain friends) │ Genshin Impact.✗ │ Twisted Wonderland.✗ (sadly, I can't play)
+CRK (Zyphris on Hollyberry Server) | Roblox (I only play with certain friends) | Genshin (quit 2022) │ Twisted Wonderland (sadly, I can't play)
 <br>
-<sub>I need to lock in cause im way behind on whatever is happening on genshin, and i'm too focused on my fav character/s in twst.</sub>
+　ᛝ　♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)
 <br>
-┈ ♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)
+Attack on Titan │ Bungo Stray Dogs │ Demon Slayer │ Guild Member Next Door │ Mo Dao Zu Shi │ Owari no Seraph │ Secrets of the Silent Witch │ Tian Guan Ci Fu │ Tokyo Revengers │ Welcome to Demon School, Iruma-kun │ etc.
 <br>
-Attack on Titan │ Bungo Stray Dogs │ Demon Slayer │ Guild Member Next Door │ Mo Dao Zu Shi │ Owari no Seraph │ Secrets of the Silent Witch │ Tian Guan Ci Fu │ Tokyo Revengers │ Welcome to Demon School, Iruma-kun, │ etc.
-<br>
-┈ ♥ . 𝐎𝐧 𝐘𝐓
+　ᛝ　♥ . 𝐎𝐧 𝐘𝐓
 <br>
 Alien Stage │ Epic: The Musical │ Gacha | Murder Drones | Underverse
 <br>
-┈ ♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬
+　ᛝ　♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬
 <br>
 Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 </details>
@@ -99,19 +97,23 @@ Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-┈ ♥ . Bungo Stray Dogs - Jouno Saiguku
+　ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku
 <br>
-┈ ♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie
+　ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie
 <br>
-┈ ♥ . Genshin Impact - Venti
+　ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)
 <br>
 ┈ ♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob
 <br>
-┈ ♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi
+<sub> SEASENTRY and UMBRELLAGRAVE shipper </sub>
 <br>
-┈ ♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Sylas Heathfolke (my oc lolol)
+　ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi
 <br>
-┈ ♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans
+　ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud
+<br>
+<sub> I relate to Riddle (his past) and Idia Shroud (present) </sub>
+<br>
+　ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans
 </details>
 
 <br>
