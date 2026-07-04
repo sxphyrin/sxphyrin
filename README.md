@@ -32,7 +32,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 | |
 |-------|
-| ᛝ　♥ . SV + socially awkward. I mostly put dniuf in my name but end up being the one to interact ahaha (⌒_⌒;)<br>ᛝ　♥ . Late/no response = Likely off-tab, or momentarily distracted. I tend to forget to toggle 'zzz'/sleeping action. 🌙<br>ᛝ　♥ . In whispers/party chat 24/7. Always w2i! Yes, I'll respond even when I have dniuf. ^-^<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..<br>ᛝ　♥ . ‼️DISCLAIMER. I don't play p!/phighting. I use Madkit in PT to match with oomf's Traitorspace, though I'm not in the fandom.|
+| ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.<br>ᛝ　♥ . Always w2i! I mostly talk in whispers/party chat. Yes, I'll respond even when I have dniuf in my name. ^-^<br>ᛝ　♥ . I apologize for late responses, I tend to forget to toggle 'zzz'/sleeping action to indicate that I'm off-t/afk. 🌙<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..<br>ᛝ　♥ . ‼️DISCLAIMER. I don't play p!/phighting. I use Madkit in PT to match with oomf's Traitorspace, though I'm not in the fandom.|
 
 
 </details>
