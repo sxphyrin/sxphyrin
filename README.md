@@ -10,56 +10,44 @@
 
 <p align="center">
 𝘭𝔱'𝚜 ꓳꓝ𝙵 𝑾𝙄𝝩𝝜 𝐘𝗈𝙐ℛ 𝑯𝛦𝔸Ⅾ !
-<br>
-  ꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞𝙡/eng ˓ ꒷꒦
+<br> 
+꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞𝙡/eng ˓ ꒷꒦
 </p>
 
 <h4 align="center">
-
+  
 sign my [ata](https://sxphyrin.atabook.org/) .
 
 </h4>
 <br>
 
-
 <details>
   
 <summary>
-『 𝓑𝒆𝒇𝒐𝒓𝒆 𝓨𝒐𝒖 𝓘𝒏𝒕 』❞
+『 𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕 』❞
 </summary>
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-　ᛝ　♥ . SV + socially awkward. I rarely interact first unless they're a green name. (⌒_⌒;)
-<br>
-　ᛝ　♥ . I mostly talk in whispers. Always w2i even with 'dniuf' in my name.
-<br>
-　ᛝ　♥ . Late/no response? I'm likely off-tab, or momentarily distracted. I tend to forget to toggle 'zzz'/sleeping action. 🌙
-<br>
-　ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..
-<br>
-　ᛝ　♥ . According to oomfs, I have a "memory of a fart". I may ask the same question multiple times.
+
+| |
+|-------|
+| ᛝ　♥ . SV + socially awkward. I mostly put dniuf in my name but end up being the one to interact ahaha (⌒_⌒;)<br>ᛝ　♥ . Late/no response = Likely off-tab, or momentarily distracted. I tend to forget to toggle 'zzz'/sleeping action. 🌙<br>ᛝ　♥ . In whispers/party chat 24/7. Always w2i! Yes, I'll respond even when I have dniuf. ^-^<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..<br>ᛝ　♥ . ‼️DISCLAIMER. I don't play p!/phighting. I use Madkit in PT to match with oomf's Traitorspace, though I'm not in the fandom.|
+
 
 </details>
 
 <details>
   
 <summary>
-『 𝓑𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔 』❞
+『 𝑩𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔 』❞
 </summary>
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-　ᛝ　♥ . Ages 15 and below IWC. I am 17, and I prefer interacting with people around my age group.
-<br>
-　ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.
-<br>
-<sub> I hide/mute those who quote or spam inappropriate stuff in public.</sub>
-<br>
-　ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.
-<br>
-　ᛝ　♥ . Do not copy or post my skins on Pinterest or any other platforms. Inspirations are fine. Just ask! I don't bite.
-<br>
+| |
+|-------|
+|ᛝ　♥ . Ages 15 and below IWC. I am 17, and I prefer interacting with people around my age group.<br>ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.<br><sub>I hide/mute those who quote or spam inappropriate stuff in public.</sub><br>ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.<br>ᛝ　♥ . Do not copy or post my skins on Pinterest or any other platforms. Inspirations are fine. Just ask! I don't bite.|
 
 
 </details>
