@@ -32,7 +32,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 | |
 |-------|
-| ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.<br>ᛝ　♥ . Always w2i! I mostly talk in whispers/party chat. Yes, I'll respond even when I have dniuf in my name. ^-^<br>ᛝ　♥ . I apologize for late responses, I tend to forget to toggle 'zzz'/sleeping action to indicate that I'm off-t/afk. 🌙<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..<br>ᛝ　♥ . ‼️DISCLAIMER. I don't play p!/phighting. I use Madkit in PT to match with oomf's Traitorspace, though I'm not in the fandom.|
+| ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.<br>ᛝ　♥ . Always w2i! I mostly talk in whispers/party chat. Yes, I'll respond even when I have dniuf in my name. ^-^<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..<br>ᛝ　♥ . ‼️DISCLAIMER. I don't play p!/phighting. I use Madkit in PT to match with oomf's Traitorspace, though I'm not in the fandom.|
 
 
 </details>
@@ -60,21 +60,13 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-　ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play)
-<br>
-CRK (Zyphris on Hollyberry Server) | Roblox (I only play with certain friends) | Genshin (quit 2022) │ Twisted Wonderland (sadly, I can't play)
-<br>
-　ᛝ　♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)
-<br>
-Attack on Titan │ Bungo Stray Dogs │ Demon Slayer │ Guild Member Next Door │ Mo Dao Zu Shi │ Owari no Seraph │ Secrets of the Silent Witch │ Tian Guan Ci Fu │ Tokyo Revengers │ Welcome to Demon School, Iruma-kun │ etc.
-<br>
-　ᛝ　♥ . 𝐎𝐧 𝐘𝐓
-<br>
-Alien Stage │ Epic: The Musical │ Gacha | Murder Drones | Underverse
-<br>
-　ᛝ　♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬
-<br>
-Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
+| |
+|-------|
+|ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games cause I mostly read)<br> ┋ CRK ∶ Zyphris on Hollyberry Server. This is the only game I play among the listed ones.<br> ┋ Roblox ∶ I only play sometimes with close friends. I <3 PMM.<br> ┋ Genshin ∶ I quit in 2022. I only listed this cause Venti's my comf character.<br> ┋ Twisted Wonderland ∶ My main interest, and it sucks that I can't play the game.|
+|ᛝ　♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)<br>Attack on Titan ┋ Bungo Stray Dogs ┋ Demon Slayer ┋ Guild Member Next Door ┋ Mo Dao Zu Shi ┋ Owari no Seraph ┋ Secrets of the Silent Witch ┋ Tian Guan Ci Fu ┋ Tokyo Revengers ┋ Welcome to Demon School, Iruma-kun ┋ etc.|
+|ᛝ　♥ . 𝐎𝐧 𝐘𝐓<br>Alien Stage ┋ Epic: The Musical ┋ Gacha ┋ Murder Drones ┋ Underverse|
+|ᛝ　♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬<br>Boboiboy ┋ Boboiboy Galaxy ┋ Creepypasta ┋ Running Man: Animation|
+
 </details>
 
 <details>
@@ -85,23 +77,9 @@ Boboiboy │ Boboiboy Galaxy │ Creepypasta │ Running Man: Animation
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
-　ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku
-<br>
-　ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie
-<br>
-　ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)
-<br>
-┈ ♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob
-<br>
-<sub> SEASENTRY and UMBRELLAGRAVE shipper </sub>
-<br>
-　ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi
-<br>
-　ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud
-<br>
-<sub> I relate to Riddle (his past) and Idia Shroud (present) </sub>
-<br>
-　ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans
+| |
+|-------|
+|ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku<br><sub>┅ I love Jouno and Tetcho, whether it's a ship or platonic</sub><br>ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie<br>ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)<br>ᛝ　♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob<br><sub> ┅ Seasentry (Lucius x William) and Umbrellagrave (Vampnoob x Vampguest) shipper </sub><br>ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi<br>ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud, Sylas Heathfolke, Niran Bonefire<br><sub>┅ Sylas is my Diasomnia oc based on Spriggans from Maleficent: Mistress of Evil. Support oomf's oc (Niran) on TikTok!!</sub><br>ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans|
 </details>
 
 <br>
