@@ -72,11 +72,17 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <details>
   
 <summary>
-『 𝓕𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝓒𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 』❞
+『 𝓕𝒂𝒗𝒐𝒓𝒊𝒕𝒆 𝓒𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔 + 𝑴𝒚 𝑶𝒄𝒔 』❞
 </summary>
 
 ꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱
 <br>
+| |
+|-------|
+|ᛝ　♥ . Twst Ocs !! (note that their lore is scraps cause I'm not a writer ahahaha..)<br>𝟘𝟙. Sylas Heathfolke - Diasomnia 2nd Year. Spriggan Fae. Based on Spriggans from Maleficent: Mistress of Evil.<br>𝟘𝟚. Videlle Corvus - non-student. Avian Fae (Raven). Queen Maleficia's right hand. Based on Diaval + Y/n from a Lilia x Reader fic on ao3 (Nocturnal Serenade). I ♡ Lilia Vanrouge.<br>𝟘𝟛. Cyril Bleumont - RSA 2nd year. Based on the bluebird from Sleeping Beauty. His lore is on hold cause there's little known about Diasomnia's counterpart in RSA.|
+|Potential Ocs based on: Princess Ivy and Prisma (Sofia the First), White Rose (Alice in Wonderland), the archer in Maleficent's bestial army (same guys Baur and Lilia are based on)|
+<br>
+
 | |
 |-------|
 |ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku<br><sub>┅ I love Jouno and Tetcho, whether it's a ship or platonic</sub><br>ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie<br>ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)<br>ᛝ　♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob<br><sub> ┅ Seasentry (Lucius x William) and Umbrellagrave (Vampnoob x Vampguest) shipper </sub><br>ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi<br>ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud, Sylas Heathfolke, Niran Bonefire<br><sub>┅ Sylas is my Diasomnia oc based on Spriggans from Maleficent: Mistress of Evil. Support oomf's oc (Niran) on TikTok!!</sub><br>ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans|
