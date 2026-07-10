@@ -91,10 +91,14 @@ After 12 hours in ibisPaint :3
 <br>
 <sub>The shading in his hair is off cause i took the strands from different characters,
 <br>
-including non-twst characters lmao only oomf knows whose wig i snatched it from)</sub>
+including non-twst characters lmao only oomf knows whose wig I snatched it from)</sub>
 <br>
 <br>
-<img width="200" height="400" src=https://www.image2url.com/r2/default/images/1783692200078-242d5b47-2988-47b6-bf39-044a376c4cd5.jpg>
+<img width="200" height="430" src=https://www.image2url.com/r2/default/images/1783692200078-242d5b47-2988-47b6-bf39-044a376c4cd5.jpg>
+<br>
+❗NOT ai. Character assets are from @twstassets @alchemivich on Tumblr.
+<br>
+<img width="200" height="200" src=https://www.image2url.com/r2/default/images/1783694651311-99c5eba8-840d-4829-ace0-e7661036d621.png>
 
 </details>
 
