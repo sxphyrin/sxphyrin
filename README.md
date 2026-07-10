@@ -86,6 +86,16 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 | |
 |-------|
 |ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku<br><sub>┅ I love Jouno and Tetcho, whether it's a ship or platonic</sub><br>ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie<br>ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)<br>ᛝ　♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob<br><sub> ┅ Seasentry (Lucius x William) and Umbrellagrave (Vampnoob x Vampguest) shipper </sub><br>ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi<br>ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud, Sylas Heathfolke, Niran Bonefire<br><sub>┅ Sylas is my Diasomnia oc based on Spriggans from Maleficent: Mistress of Evil. Support oomf's oc (Niran) on TikTok!!</sub><br>ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans|
+<br>
+After 12 hours in ibisPaint :3
+<br>
+<sub>The shading in his hair is off cause i took the strands from different characters,
+<br>
+including non-twst characters lmao only oomf knows whose wig i snatched it from)</sub>
+<br>
+<br>
+<img width="200" height="400" src=https://www.image2url.com/r2/default/images/1783692200078-242d5b47-2988-47b6-bf39-044a376c4cd5.jpg>
+
 </details>
 
 <br>
