@@ -47,7 +47,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 | |
 |-------|
-|ᛝ　♥ . Ages 15 and below IWC. I am 17, and I prefer interacting with people around my age group.<br>ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.<br><sub>I hide/mute those who quote or spam inappropriate stuff in public.</sub><br>ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.<br>ᛝ　♥ . Do not copy or post my skins on Pinterest or any other platforms. Inspirations are fine. Just ask! I don't bite.|
+|ᛝ　♥ . Ages 15 and below IWC. Most of my friends and I are 18.<br>ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.<br><sub>I hide/mute those who quote or spam inappropriate stuff in public.</sub><br>ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.<br>ᛝ　♥ . Do not copy (1:1) or post my skins on Pinterest or any other platforms. Inspirations are fine. Just ask! I don't bite.|
 
 
 </details>
