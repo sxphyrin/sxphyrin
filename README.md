@@ -62,7 +62,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 | |
 |-------|
-|ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games cause I mostly read)<br> ┋ CRK ∶ Zyphris on Hollyberry Server. This is the only game I play among the listed ones.<br> ┋ Roblox ∶ I only play sometimes with close friends. I <3 PMM.<br> ┋ Genshin ∶ I quit in 2022. I only listed this cause Venti's my comf character.<br> ┋ Twisted Wonderland ∶ My main interest, and it sucks that I can't play the game.|
+|ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games cause I mostly read)<br> ┋ CRK ∶ Zyphris on Hollyberry Server. This is the only game I play among the listed ones.<br> ┋ Roblox ∶ I only play sometimes with close friends. I <3 PMM.<br> ┋ Genshin ∶ I quit in 2022. I only listed this cause Venti's my comf character.<br> ┋ Twisted Wonderland ∶ Has been my fixation since Sayoung introduced it to me in April 2026. I just started playing the game on my birthday, July 12.|
 |ᛝ　♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)<br>Attack on Titan ┋ Bungo Stray Dogs ┋ Demon Slayer ┋ Guild Member Next Door ┋ Mo Dao Zu Shi ┋ Owari no Seraph ┋ Secrets of the Silent Witch ┋ Tian Guan Ci Fu ┋ Tokyo Revengers ┋ Welcome to Demon School, Iruma-kun ┋ etc.|
 |ᛝ　♥ . 𝐎𝐧 𝐘𝐓<br>Alien Stage ┋ Epic: The Musical ┋ Gacha ┋ Murder Drones ┋ Underverse|
 |ᛝ　♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬<br>Boboiboy ┋ Boboiboy Galaxy ┋ Creepypasta ┋ Running Man: Animation|
@@ -79,8 +79,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 | |
 |-------|
-|ᛝ　♥ . Twst Ocs !! (note that their lore is scraps cause I'm not a writer ahahaha..)<br>𝟘𝟙. Sylas Heathfolke - Diasomnia 2nd Year. Spriggan Fae. Based on Spriggans from Maleficent: Mistress of Evil.<br>𝟘𝟚. Videlle Corvus - non-student. Avian Fae (Raven). Queen Maleficia's right hand. Based on Diaval + Y/n from a Lilia x Reader fic on ao3 (Nocturnal Serenade). I ♡ Lilia Vanrouge.<br>𝟘𝟛. Cyril Bleumont - RSA 2nd year. Based on the bluebird from Sleeping Beauty. His lore is on hold cause there's little known about Diasomnia's counterpart in RSA.|
-|Potential Ocs based on: Princess Ivy and Prisma (Sofia the First), White Rose (Alice in Wonderland), the archer in Maleficent's bestial army (same guys Baur and Lilia are based on)|
+|ᛝ　♥ . Twst Ocs !! (note that their lore is scraps cause I'm not a writer ahahaha..)<br>𝟘𝟙. Sylas Heathfolke - Diasomnia 2nd Year. Spriggan Fae. Based on Spriggans from Maleficent: Mistress of Evil.<br>𝟘𝟚. Videlle Corvus - non-student. Avian Fae (Raven). Queen Maleficia's right hand. Based on Diaval + Y/n from a Lilia x Reader fic on ao3 (Nocturnal Serenade). I ♡ Lilia Vanrouge.<br>𝟘𝟛. Cyril Bleumont - RSA 2nd year. Based on the bluebird from Sleeping Beauty. His lore is on hold cause there's little known about Diasomnia's counterpart in RSA. |
 <br>
 
 | |
