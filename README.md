@@ -79,7 +79,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 | |
 |-------|
-|ᛝ　♥ . Twst Ocs !! (note that their lore is scraps cause I'm not a writer ahahaha..)<br>𝟘𝟙. Sylas Heathfolke - Diasomnia 2nd Year. Spriggan Fae. Based on Spriggans from Maleficent: Mistress of Evil.<br>𝟘𝟚. Videlle Corvus - non-student. Avian Fae (Raven). Queen Maleficia's right hand. Based on Diaval + Y/n from a Lilia x Reader fic on ao3 (Nocturnal Serenade). I ♡ Lilia Vanrouge.<br>𝟘𝟛. Cyril Bleumont - RSA 2nd year. Based on the bluebird from Sleeping Beauty. His lore is on hold cause there's little known about Diasomnia's counterpart in RSA. |
+|ᛝ　♥ . Twst Ocs !! (note that their lore is scraps cause I'm not a writer ahahaha..)<br>𝟘𝟙. Sylas Heathfolke - Diasomnia 2nd Year. Spriggan Fae. Based on Spriggans from Maleficent: Mistress of Evil.<br>𝟘𝟚. Videlle Corvus - non-student. Avian Fae (Raven). Queen Maleficia's right hand. Based on Diaval + Y/n from a Lilia x Reader fic on ao3 (Nocturnal Serenade). I ♡ Lilia Vanrouge.<br>𝟘𝟛. Cyril Bleumont - RSA 2nd year. Based on the bluebird from Sleeping Beauty. His lore is on hold cause there's little known about Diasomnia's counterpart in RSA.<br>𝟘𝟜. Lucien La Voix. Octavinelle 2nd year. Based Ursula's necklace containing Ariel's voice. No lore yet, but his UM is basically mimicry. |
 <br>
 
 | |
