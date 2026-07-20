@@ -32,7 +32,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 | |
 |-------|
-| ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.<br>ᛝ　♥ . Always w2i! I mostly talk in whispers/party chat. Yes, I'll respond even when I have dniuf in my name. ^-^<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..<br>ᛝ　♥ . ‼️DISCLAIMER. I don't play p!/phighting. I use Madkit in PT to match with oomf's Traitorspace, though I'm not in the fandom.|
+| ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.<br>ᛝ　♥ . Always w2i! I mostly talk in whispers/party chat. Yes, I'll respond even when I have dniuf in my name. ^-^<br>ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head..|
 
 
 </details>
@@ -47,7 +47,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 | |
 |-------|
-|ᛝ　♥ . Ages 15 and below IWC. Most of my friends and I are 18.<br>ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.<br><sub>I hide/mute those who quote or spam inappropriate stuff in public.</sub><br>ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.<br>ᛝ　♥ . Do not copy (1:1) or post my skins on Pinterest or any other platforms. Inspirations are fine. Just ask! I don't bite.|
+|ᛝ　♥ . Ages 15 and below IWC. Most of my friends and I are 18.<br>ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.<br><sub>I hide/mute those who quote or spam inappropriate stuff in public.</sub><br>ᛝ　♥ . Basic DNI criteria. + no roleplay or shipping interactions.<br>ᛝ　♥ . Do not copy (1:1) or post my skins on Pinterest or any other platforms. Inspirations are fine! I don't bite.|
 
 
 </details>
