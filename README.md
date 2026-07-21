@@ -62,7 +62,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 <br>
 | |
 |-------|
-|ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games cause I mostly read)<br> ┋ CRK ∶ Zyphris on Hollyberry Server. This is the only game I play among the listed ones.<br> ┋ Roblox ∶ I only play sometimes with close friends. I <3 PMM.<br> ┋ Genshin ∶ I quit in 2022. I only listed this cause Venti's my comf character.<br> ┋ Twisted Wonderland ∶ Has been my fixation since Sayoung introduced it to me in April 2026. I just started playing the game on my birthday, July 12.|
+|ᛝ　♥ . 𝐆𝐚𝐦𝐞𝐬 (I barely play games cause I mostly read)<br> ┋ CRK ∶ Zyphris on Hollyberry Server.<br> ┋ Roblox ∶ I only play sometimes with close friends.<br> ┋ Genshin ∶ I quit in 2022. I only listed this cause Venti's my comf character.<br> ┋ Twisted Wonderland ∶ My current fixation.|
 |ᛝ　♥ . 𝐀𝐧𝐢𝐦𝐚𝐧𝐠𝐚/𝐌𝐚𝐧𝐡𝐰𝐚/𝐌𝐚𝐧𝐡𝐮𝐚 (sorted alphabetically)<br>Attack on Titan ┋ Bungo Stray Dogs ┋ Demon Slayer ┋ Guild Member Next Door ┋ Mo Dao Zu Shi ┋ Owari no Seraph ┋ Secrets of the Silent Witch ┋ Tian Guan Ci Fu ┋ Tokyo Revengers ┋ Welcome to Demon School, Iruma-kun ┋ etc.|
 |ᛝ　♥ . 𝐎𝐧 𝐘𝐓<br>Alien Stage ┋ Epic: The Musical ┋ Gacha ┋ Murder Drones ┋ Underverse|
 |ᛝ　♥ . 𝐂𝐡𝐢𝐥𝐝𝐡𝐨𝐨𝐝/𝐎𝐭𝐡𝐞𝐫𝐬<br>Boboiboy ┋ Boboiboy Galaxy ┋ Creepypasta ┋ Running Man: Animation|
@@ -84,7 +84,7 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 
 | |
 |-------|
-|ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku<br><sub>┅ I love Jouno and Tetcho, whether it's a ship or platonic</sub><br>ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie<br>ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)<br>ᛝ　♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob<br><sub> ┅ Seasentry (Lucius x William) and Umbrellagrave (Vampnoob x Vampguest) shipper </sub><br>ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi<br>ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud, Sylas Heathfolke, Niran Bonefire<br><sub>┅ Sylas is my Diasomnia oc based on Spriggans from Maleficent: Mistress of Evil. Support oomf's oc (Niran) on TikTok!!</sub><br>ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Two Time, Azure, Rema/Dv4, Cross/Xtale Sans|
+|ᛝ　♥ . Bungo Stray Dogs - Jouno Saiguku<br><sub>┅ I love Jouno and Tetcho, whether it's a ship or platonic</sub><br>ᛝ　♥ . Cookie Run: Kingdom - Black Sapphire Cookie, Pavlova Cookie, Wind Archer Cookie<br>ᛝ　♥ . Genshin Impact - Venti (#1 comfort character since 2021)<br>ᛝ　♥ . Pupi's Midnight Munchies - Lucius, Vampguest, Vampnoob<br><sub> ┅ Seasentry (Lucius x William) and Umbrellagrave (Vampnoob x Vampguest) shipper </sub><br>ᛝ　♥ . Seraph of the End - Lacus Welt , Mikaela Hyakuya, Shinya Hiragi<br>ᛝ　♥ . Twisted Wonderland - Lilia Vanrouge, Riddle Rosehearts, Idia Shroud, Ortho Shroud, Sylas Heathfolke, Niran Bonefire<br><sub>┅ Sylas is my Diasomnia oc. Support oomf's oc (Niran) on TikTok!!</sub><br>ᛝ　♥ . Others: Meowiemeowmeow, Rynzbelfeid, Rema/Dv4, Cross/Xtale Sans|
 <br>
 After 12 hours in ibisPaint :3
 <br>
