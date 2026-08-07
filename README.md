@@ -1,16 +1,15 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=6d0023&style=plastic)
-
-
-
 <p align="center">
-♕
-<br>
-<img width="200" height="200" src=https://i.pinimg.com/originals/ac/74/cc/ac74ccf0893a2453c53b0774f446d183.gif>
+
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=6d0023&style=plastic)
 </p>
 
 <p align="center">
-𝘭𝔱'𝚜 ꓳꓝ𝙵 𝑾𝙄𝝩𝝜 𝐘𝗈𝙐ℛ 𝑯𝛦𝔸Ⅾ !
-<br> 
+<img src=https://64.media.tumblr.com/ce1cb80f049a1d38140ca12b9d671630/604fcba5d7119327-14/s1280x1920/ddc54b0f5140201fab909d4fcafee03e542e7124.gifv>
+</p>
+
+<p align="center">
+wip
+<br>
 ꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞𝙡/eng ˓ ꒷꒦
 </p>
 
