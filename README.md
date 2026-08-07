@@ -5,7 +5,7 @@
 </p>
 
 
-<img src="https://www.image2url.com/r2/default/images/1786106359607-cb73512d-f9a8-40fc-b907-a313323fcaa9.png" align="right">
+<img src="https://www.image2url.com/r2/default/images/1786106359607-cb73512d-f9a8-40fc-b907-a313323fcaa9.png" align="right" style="margin-left: 1px;">
 <br>
 <br>
 <br>
@@ -26,16 +26,14 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 </h4>
 
 <p align="center">
-𝚛𝚎𝚖𝚊𝚔𝚒𝚗𝚐 𝚖𝚢 𝚒𝚗𝚏𝚘 𝚠𝚑𝚎𝚗 𝚒 𝚏𝚎𝚎𝚕 𝚕𝚒𝚔𝚎 𝚒𝚝 :3
+𝚛𝚎𝚖𝚊𝚔𝚒𝚗𝚐 𝚖𝚢 𝚒𝚗𝚏𝚘 𝚠𝚑𝚎𝚗 I 𝚏𝚎𝚎𝚕 𝚕𝚒𝚔𝚎 𝚒𝚝 :3
   <br>
-𝚊𝚕𝚠𝚊𝚢𝚜 𝚠𝟸𝚒 𝚜𝚒𝚗𝚌𝚎 im 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏-𝚝𝚊𝚋. 𝚋𝚞𝚜𝚢 𝚌𝚘𝚕𝚕𝚎𝚐𝚎 𝚜𝚝𝚞𝚍𝚎𝚗𝚝.
-
+𝚊𝚕𝚠𝚊𝚢𝚜 𝚠𝟸𝚒 𝚜𝚒𝚗𝚌𝚎 I'm 𝚖𝚘𝚜𝚝𝚕𝚢 𝚘𝚏𝚏-𝚝𝚊𝚋. 𝚋𝚞𝚜𝚢 𝚌𝚘𝚕𝚕𝚎𝚐𝚎 𝚜𝚝𝚞𝚍𝚎𝚗𝚝.
 </p>
 
 <h4 align="center">
-
-If you wish to see ones [memories](https://github.com/sxphyrin/sxphiel) .
-
+  
+If you wish to see one's [memories](https://github.com/sxphyrin/sxphiel) .
 </h4>
 <br clear="right">
 
