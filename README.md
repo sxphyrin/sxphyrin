@@ -13,6 +13,10 @@ wip
 ꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞𝙡/eng ˓ ꒷꒦
 </p>
 
+<p align="center">
+<img src=https://i.imgur.com/jct6253.gif> <img src=https://i.imgur.com/jct6253.gif> <img src=https://i.imgur.com/jct6253.gif>
+</p>
+
 <h4 align="center">
   
 sign my [ata](https://sxphyrin.atabook.org/) .
