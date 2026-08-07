@@ -5,8 +5,7 @@
 </p>
 
 
-<img src="https://www.image2url.com/r2/default/images/1786106359607-cb73512d-f9a8-40fc-b907-a313323fcaa9.png" align="right">
-<br>
+<img src="https://64.media.tumblr.com/a6157e978b89961d67b18dc10bbc046f/9710a6b2a9206037-65/s2048x3072/f451f444a67a2ebb74966cbf7a3cebbb8b543293.pnj" width="300" align="right">
 <br>
 <br>
 <br>
@@ -20,25 +19,74 @@ $\color{#2bb800}{\textsf{꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞�
 <br>
 $\color{#2bb800}{\textsf{⤿ㅤ 𝟖teen . 15- iwcㅤ ٫٫}}$
 </p>
+<br clear="right">
 
-<details>
-  
+<details> 
 <summary>
 $\color{#7d00b8}{\textsf{『 𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕 』❞}}$
 </summary>
-
 $\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<br>
+<table>
+<tr>
+<td>
 $\color{#7d00b8}{\textsf{ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Always w2i! I mostly talk in whispers/party chat. Yes, I'll respond even when I have dniuf in my name.}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . I rarely put it in my name, but feel free to c+h! Shoutout to my cuddle buddies.}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Always w2i. I do apologize for late replies. I always have multiple tabs open.}}$<br> 
 $\color{#7d00b8}{\textsf{ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head.}}$
+</td>
+</tr>
+</table>
 </details>
+
+
+
+<details>
+<summary>
+$\color{#7d00b8}{\textsf{『 𝑩𝒐𝒖𝒏𝒅𝒂𝒓𝒊𝒆𝒔 』❞}}$
+</summary>
+$\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<br>
+<table>
+<tr>
+<td>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Basic DNI criteria. + no roleplay and shipping unless friends.}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . I hide freely, but only temporarily unless the person is said to be problematic.}}$<br>
+</td>
+</tr>
+</table>
+</details>
+
+
+
+<details>
+<summary>
+$\color{#7d00b8}{\textsf{『 𝓘𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔 』❞}}$
+</summary>
+$\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<br>
+<table>
+<tr>
+<td>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Active: Twisted Wonderland (sxphyrin on English), Crk (Zyphris on Hollyberry server).}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Semi-Active: Roblox - Pupi's Midnight Munchies, Animal Hospital, Phighting.}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Previous fixations: Owari no Seraph, Bungo Stray Dogs, Tokyo Revengers.}}$
+</td>
+</tr>
+</table>
+<table>
+<tr>
+<td>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Beloved Characters: Lilia Vanrouge♡, Shinya Hiiragi, Lacus Welt}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . I heavily relate to them: Riddle Rosehearts, Azul Ashengrotto.}}$<br>
+</td>
+</tr>
+</table>
+</details>
+
 
 <h4 align="center">
 
 If you wish to see one's [memories](https://github.com/sxphyrin/sxphiel) .
 </h4>
-
-<br clear="right">
 
 
 <p align="center">
