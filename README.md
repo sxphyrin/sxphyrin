@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=6d0023&style=plastic)
+![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=2bb800&style=plastic)
 
 <p align="center">
 <img src=https://64.media.tumblr.com/ce1cb80f049a1d38140ca12b9d671630/604fcba5d7119327-14/s1280x1920/ddc54b0f5140201fab909d4fcafee03e542e7124.gifv>
