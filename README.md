@@ -1,20 +1,22 @@
-<p align="center">
-
 ![](https://komarev.com/ghpvc/?username=sxphyrin&label=♥&color=6d0023&style=plastic)
-</p>
 
 <p align="center">
 <img src=https://64.media.tumblr.com/ce1cb80f049a1d38140ca12b9d671630/604fcba5d7119327-14/s1280x1920/ddc54b0f5140201fab909d4fcafee03e542e7124.gifv>
 </p>
 
+
+<img src="https://www.image2url.com/r2/default/images/1786106359607-cb73512d-f9a8-40fc-b907-a313323fcaa9.png" align="right">
+<br>
+<br>
+<br>
+<br>
 <p align="center">
 wip
 <br>
 ꒷‧ Lu𝙘𝙞𝙚𝙡 | 𝙨he/he𝙧 | 𝙛𝙞𝙡/eng ˓ ꒷꒦
 </p>
-
 <p align="center">
-<img src=https://i.imgur.com/jct6253.gif> <img src=https://i.imgur.com/jct6253.gif> <img src=https://i.imgur.com/jct6253.gif>
+<img src=https://i.imgur.com/jct6253.gif>
 </p>
 
 <h4 align="center">
@@ -35,5 +37,9 @@ sign my [ata](https://sxphyrin.atabook.org/) .
 If you wish to see ones [memories](https://github.com/sxphyrin/sxphiel) .
 
 </h4>
-<br>
+<br clear="right">
+
+<p align="center">
+<img src=https://64.media.tumblr.com/ce1cb80f049a1d38140ca12b9d671630/604fcba5d7119327-14/s1280x1920/ddc54b0f5140201fab909d4fcafee03e542e7124.gifv>
+</p>
 
