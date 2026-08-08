@@ -30,9 +30,8 @@ $\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<
 <tr>
 <td>
 $\color{#7d00b8}{\textsf{ᛝ　♥ . SV + socially awkward. You'll only ever see me actively playing when I'm w friends. Otherwise, I'm off-tab lolol.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I rarely put it in my name, but feel free to c+h! Shoutout to my cuddle buddies.}}$<br> 
 $\color{#7d00b8}{\textsf{ᛝ　♥ . Always w2i. I do apologize for late replies. I always have multiple tabs open.}}$<br> 
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I'm not that chronically online, so some jokes/references may completely fly over my head.}}$
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Feel free to c+h. Don't feel obligated to strike a conversation unless you want to; your company is enough!}}$<br> 
 </td>
 </tr>
 </table>
@@ -48,9 +47,10 @@ $\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<
 <table>
 <tr>
 <td>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Basic DNI criteria apply, as well as internet etiquette. + no roleplay and shipping unless friends.}}$<br> 
 $\color{#7d00b8}{\textsf{ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Basic DNI criteria. + no roleplay and shipping unless friends.}}$<br> 
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I hide freely, but only temporarily unless the person is said to be problematic.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . I hide freely, but only temporarily unless the person is deemed problematic.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Inspos are fine as long as it's not outright copying. I would also be happy to teach how I make some toy accessories.}}$<br>
 </td>
 </tr>
 </table>
@@ -75,7 +75,7 @@ $\color{#7d00b8}{\textsf{ᛝ　♥ . Previous fixations: Owari no Seraph, Bungo 
 <table>
 <tr>
 <td>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Beloved Characters: Lilia Vanrouge♡, Shinya Hiiragi, Lacus Welt}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Beloved Characters: LILIA VANROUGE♡, Shinya Hiiragi, Lacus Welt}}$<br>
 $\color{#7d00b8}{\textsf{ᛝ　♥ . I heavily relate to them: Riddle Rosehearts, Azul Ashengrotto.}}$<br>
 </td>
 </tr>
