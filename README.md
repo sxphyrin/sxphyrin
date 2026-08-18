@@ -83,6 +83,38 @@ $\color{#7d00b8}{\textsf{ᛝ　♥ . I heavily relate to them: Riddle Rosehearts
 </details>
 
 
+
+<details>
+<summary>
+$\color{#7d00b8}{\textsf{『 𝑿𝒕𝒓𝒂 』❞}}$
+</summary>
+$\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<br>
+<table>
+<tr>
+<td>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . My shading style/s, except I suck at explaining.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Choosing colors: I use analogous colors/colors next to each other in the color wheel.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Shading: Using HSV. Hue Shift and decrease the SV diagonally. }}$<br>
+$\color{#c9f9af}{\textsf{Color 1}}$
+$\color{#8fecb1}{\textsf{Color 2}}$
+$\color{#63c6db}{\textsf{Color 3}}$
+$\color{#264587}{\textsf{Color 4}}$
+$\color{#0b204f}{\textsf{Color 5}}$
+<br>
+$\color{#afbf9f}{\textsf{Color 1}}$
+$\color{#bc978e}{\textsf{Color 2}}$
+$\color{#8f4e67}{\textsf{Color 3}}$
+$\color{#452154}{\textsf{Color 4}}$
+$\color{#201838}{\textsf{Color 5}}$
+<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Color plotting: either 12345, 12354, 45321 or 1245 (for split/dual colored hair.) }}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Choosing outlines: Paste base color then hue shift about 10 units up/down.}}$
+</td>
+</tr>
+</table>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . There are helpful full skin guides who explain the terms better, this is just for the ones who asked how I shade :D}}$<br>
+</details>
+
 <h4 align="center">
 
 If you wish to see one's [memories](https://github.com/sxphyrin/sxphiel) .
