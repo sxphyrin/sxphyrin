@@ -23,15 +23,15 @@ $\color{#2bb800}{\textsf{⤿ㅤ 𝟖teen . 15- iwcㅤ ٫٫}}$
 
 <details> 
 <summary>
-$\color{#7d00b8}{\textsf{『 𝑩𝒆𝒇𝒐𝒓𝒆 𝒀𝒐𝒖 𝑰𝒏𝒕 』❞}}$
+$\color{#7d00b8}{\textsf{『 𝑰𝒏𝒇𝒐 』❞}}$
 </summary>
 $\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<br>
 <table>
 <tr>
 <td>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I don't mean to seem unapproachable; I'm very socially awkward and wary around people.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Always w2i. I'm a studyholic college student. Sorry for the late/lack of replies.（￣□￣；）}}$<br> 
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Feel free to c+h. Don't feel obligated to strike a conversation unless you want to; your company is enough!}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ɪ'ᴍ ᴀ ꜱᴛᴜᴅʏʜᴏʟɪᴄ ᴄᴏʟʟᴇɢᴇ ꜱᴛᴜᴅᴇɴᴛ. ʟɪᴋᴇʟʏ ᴏꜰꜰ-ᴛᴀʙ ᴍᴏꜱᴛ ᴏꜰ ᴛʜᴇ ᴛɪᴍᴇ.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ᴀʟᴡᴀʏꜱ ᴡʜɪꜱᴘᴇʀ ꜱɪɴᴄᴇ ɪ ᴍɪɢʜᴛ ɴᴏᴛ ꜱᴇᴇ ᴘᴜʙʟɪᴄ ᴄʜᴀᴛ.（￣□￣；）}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄ+ʜ!! ᴅᴏɴ'ᴛ ꜰᴇᴇʟ ᴏʙʟɪɢᴀᴛᴇᴅ ᴛᴏ ꜱᴛʀɪᴋᴇ ᴀ ᴄᴏɴᴠᴇʀꜱᴀᴛɪᴏɴ ᴜɴʟᴇꜱꜱ ʏᴏᴜ ᴡᴀɴᴛ ᴛᴏ; ʏᴏᴜʀ ᴄᴏᴍᴘᴀɴʏ ɪꜱ ᴇɴᴏᴜɢʜ!}}$<br> 
 </td>
 </tr>
 </table>
@@ -47,10 +47,10 @@ $\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<
 <table>
 <tr>
 <td>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Basic DNI criteria apply, and just don't be an ass. + no roleplay and shipping unless friends.}}$<br> 
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I will not entertain flirting, suggestive remarks, or “freak” behavior from people outside my circle.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I hide freely, but only temporarily unless the person is deemed problematic.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Inspos are ok as long as it's not outright copying. I would also be happy to teach how I make some toy accessories!}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ ᴀᴘᴘʟʏ, ᴀɴᴅ ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʙᴇ ᴀɴ ᴀꜱꜱ. + ɴᴏ ʀᴏʟᴇᴘʟᴀʏ ᴀɴᴅ ꜱʜɪᴘᴘɪɴɢ ᴜɴʟᴇꜱꜱ ꜰʀɪᴇɴᴅꜱ.}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ɪ ᴡɪʟʟ ɴᴏᴛ ᴇɴᴛᴇʀᴛᴀɪɴ ꜰʟɪʀᴛɪɴɢ, ꜱᴜɢɢᴇꜱᴛɪᴠᴇ ʀᴇᴍᴀʀᴋꜱ, ᴏʀ “ꜰʀᴇᴀᴋ” ʙᴇʜᴀᴠɪᴏʀ ꜰʀᴏᴍ ᴘᴇᴏᴘʟᴇ ᴏᴜᴛꜱɪᴅᴇ ᴍʏ ᴄɪʀᴄʟᴇ.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ɪ ʜɪᴅᴇ ꜰʀᴇᴇʟʏ, ʙᴜᴛ ᴏɴʟʏ ᴛᴇᴍᴘᴏʀᴀʀɪʟʏ ᴜɴʟᴇꜱꜱ ᴛʜᴇ ᴘᴇʀꜱᴏɴ ɪꜱ ᴅᴇᴇᴍᴇᴅ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ɪɴꜱᴘᴏꜱ ᴀʀᴇ ᴏᴋ ᴀꜱ ʟᴏɴɢ ᴀꜱ ɪᴛ'ꜱ ɴᴏᴛ ᴏᴜᴛʀɪɢʜᴛ ᴄᴏᴘʏɪɴɢ. ɪ ᴡᴏᴜʟᴅ ᴀʟꜱᴏ ʙᴇ ʜᴀᴘᴘʏ ᴛᴏ ᴛᴇᴀᴄʜ ʜᴏᴡ ɪ ᴍᴀᴋᴇ ꜱᴏᴍᴇ ᴛᴏʏ ᴀᴄᴄᴇꜱꜱᴏʀɪᴇꜱ!}}$<br>
 </td>
 </tr>
 </table>
@@ -66,53 +66,22 @@ $\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<
 <table>
 <tr>
 <td>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Active: Twisted Wonderland (sxphyrin on English), Crk (Zyphris on Hollyberry server).}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Semi-Active: Roblox - Pupi's Midnight Munchies, Animal Hospital, Phighting.}}$<br> 
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Previous fixations: Owari no Seraph, Bungo Stray Dogs, Tokyo Revengers.}}$
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ᴀᴄᴛɪᴠᴇ: ᴛᴡɪꜱᴛᴇᴅ ᴡᴏɴᴅᴇʀʟᴀɴᴅ (ꜱxᴘʜʏʀɪɴ ᴏɴ ᴇɴɢʟɪꜱʜ), ᴄʀᴋ (ᴢʏᴘʜʀɪꜱ ᴏɴ ʜᴏʟʟʏʙᴇʀʀʏ ꜱᴇʀᴠᴇʀ).}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ꜱᴇᴍɪ-ᴀᴄᴛɪᴠᴇ: ʀᴏʙʟᴏx - ᴘᴜᴘɪ'ꜱ ᴍɪᴅɴɪɢʜᴛ ᴍᴜɴᴄʜɪᴇꜱ, ᴀɴɪᴍᴀʟ ʜᴏꜱᴘɪᴛᴀʟ, ᴘʜɪɢʜᴛɪɴɢ.}}$<br> 
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ᴘʀᴇᴠɪᴏᴜꜱ ꜰɪxᴀᴛɪᴏɴꜱ: ᴏᴡᴀʀɪ ɴᴏ ꜱᴇʀᴀᴘʜ, ʙᴜɴɢᴏ ꜱᴛʀᴀʏ ᴅᴏɢꜱ, ᴛᴏᴋʏᴏ ʀᴇᴠᴇɴɢᴇʀꜱ.}}$
 </td>
 </tr>
 </table>
 <table>
 <tr>
 <td>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Beloved Characters: LILIA VANROUGE♡, Shinya Hiiragi, Lacus Welt. }}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . I heavily relate to them: Riddle Rosehearts, Azul Ashengrotto.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . Beloved Characters: LILIA VANROUGE♡, Shinya Hiiragi. }}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ɪ ʜᴇᴀᴠɪʟʏ ʀᴇʟᴀᴛᴇ ᴛᴏ ᴛʜᴇᴍ: ʀɪᴅᴅʟᴇ ʀᴏꜱᴇʜᴇᴀʀᴛꜱ, ᴀᴢᴜʟ ᴀꜱʜᴇɴɢʀᴏᴛᴛᴏ.}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ᴄᴀɴ ʏᴏᴜ ᴛᴇʟʟ ᴛʜᴀᴛ ɪ ʟᴏᴠᴇ ʟɪʟɪᴀ ᴠᴀɴʀᴏᴜɢᴇ. (ᴇꜱᴘᴇᴄɪᴀʟʟʏ ɢᴇɴᴇʀᴀʟ ᴠᴀɴʀᴏᴜɢᴇ ᴇʀᴀ)}}$<br>
+$\color{#7d00b8}{\textsf{ᛝ　♥ . ᴛʜɪꜱ ɪꜱ ɴᴏᴛ ᴀ ꜱʜᴏʀᴛ ʜᴜꜱʙᴀɴᴅ x ᴛᴀʟʟ ᴡɪꜰᴇ ᴛʀᴏᴘᴇ ᴄᴀᴜꜱᴇ ʜᴇ'ꜱ 5'2 ᴀɴᴅ ɪᴍ 5'0..}}$<br>
 </td>
 </tr>
 </table>
-</details>
-
-
-
-<details>
-<summary>
-$\color{#7d00b8}{\textsf{『 𝑿𝒕𝒓𝒂 』❞}}$
-</summary>
-$\color{#7d00b8}{\textsf{꒰꒰・┄┄┄┄・♡・┄┄┄┄・꒱꒱}}$<br>
-<table>
-<tr>
-<td>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . My shading style/s, except I suck at explaining.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Choosing colors: I use analogous colors/colors next to each other in the color wheel.}}$<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Shading: Using HSV. Hue Shift and decrease the SV diagonally. }}$<br>
-$\color{#c9f9af}{\textsf{Color 1}}$
-$\color{#8fecb1}{\textsf{Color 2}}$
-$\color{#63c6db}{\textsf{Color 3}}$
-$\color{#264587}{\textsf{Color 4}}$
-$\color{#0b204f}{\textsf{Color 5}}$
-<br>
-$\color{#afbf9f}{\textsf{Color 1}}$
-$\color{#bc978e}{\textsf{Color 2}}$
-$\color{#8f4e67}{\textsf{Color 3}}$
-$\color{#452154}{\textsf{Color 4}}$
-$\color{#201838}{\textsf{Color 5}}$
-<br>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Color plotting: either 12345, 12354, 45321 or 1245 (for split/dual colored hair.) }}$<br> 
-$\color{#7d00b8}{\textsf{ᛝ　♥ . Choosing outlines: Paste base color then hue shift about 10 units up/down.}}$
-</td>
-</tr>
-</table>
-$\color{#7d00b8}{\textsf{ᛝ　♥ . There are helpful full skin guides who explain the terms better, this is just for the ones who asked how I shade :D}}$<br>
 </details>
 
 <h4 align="center">
