@@ -8,4 +8,6 @@
 
 <p align="center">
 in celebration of lilia's sugar race groovy, i'm finally gonna work on gh, ata, etc layout... after prefi exams.
+<br>
+im not scary to approach trust. just very socially awkward </33
 </p>
