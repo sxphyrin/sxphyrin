@@ -7,7 +7,6 @@
 <br>
 
 <p align="center">
-in celebration of lilia's sugar race groovy, i'm finally gonna work on gh, ata, etc layout... after prefi exams.
-<br>
+i lied i aint fixing my layout<br>
 do not copy/inspo my skins UNLESS friends. i am not comfortable being mistaken as someone.
 </p>
