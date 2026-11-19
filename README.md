@@ -7,7 +7,7 @@
 <br>
 
 <p align="center">
-i lied i aint fixing my layout.. come c+h ! im not scary, jut socially awkward 💔
+i lied i aint fixing my layout.. come c+h ! im not scary, just socially awkward 💔
 <br>
 do not copy/inspo my skins UNLESS friends. i am not comfortable being mistaken as someone.
 </p>
